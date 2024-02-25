@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Akrom
+- 👀 I’m interested in creating web-sites
+- 🌱 I’m currently learning back-end
+- 📫 You can contact me by telegram: t.me/akrom_1102 , or by instagram: instagram.com/akrom_1102
+- ⚡ Fun fact: I am a student. 
